@@ -4,7 +4,7 @@
 
 ### Ingredientes
 
-- Não devemos matar os animais
+- Não vou passar a receita... Sou vegano!
 
 - Nossa espécie bla bla bla.
 
